@@ -1,0 +1,1 @@
+# gintamayy.github.io
